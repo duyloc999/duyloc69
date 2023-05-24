@@ -1,2 +1,2 @@
 # duyloc69
-new
+I'm a tech enthusiast and a total IT nerd at heart.
